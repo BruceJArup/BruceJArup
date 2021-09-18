@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @BruceJArup
+- 🌱 I’m currently learning ... so be kind
